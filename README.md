@@ -1,2 +1,2 @@
 # APKGrabber Latest Games
-API Source Coming Soon.
+https://apkgrabber.com/category/games.
