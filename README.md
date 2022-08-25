@@ -1,2 +1,2 @@
 # APKGrabber Latest Games
-https://apkgrabber.com/category/games.
+https://apkgrabber.com/blog/
